@@ -1,1 +1,0 @@
-# Spanisch-Vokabeltrainer-7e
